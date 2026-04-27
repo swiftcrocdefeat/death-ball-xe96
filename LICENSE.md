@@ -1,4 +1,4 @@
-
+secure Scripts for ink game is the best ink game Script, featuring auto-heal and auto-sell. Safe and powerful for all your needs.
 
 
 
